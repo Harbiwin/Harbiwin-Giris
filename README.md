@@ -1,3 +1,3 @@
 # Harbiwin-Giris
 Harbiwin Güncel Giriş Adresi Aşağıdaki Linkte...
-https://www.kisa.link/bXMfw
+https://l24.im/8pl5HA
